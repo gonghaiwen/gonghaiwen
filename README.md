@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @gonghaiwen
-- 👀 I’m interested in physics and c-pop
+- 👀 I’m interested in physics
 - 📫 How to reach me --> gonghaiwen19@mails.ucas.ac.cn
